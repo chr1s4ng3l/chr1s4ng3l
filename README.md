@@ -9,6 +9,5 @@
 - 🤔 I’m looking for help with new topics.
 - 💬 Ask me about anything I like to learn.
 - 📫 How to reach me: christopher.tamayocazarez@gmail.com
-- 😄 Pronouns: Chris.
 - ⚡ Fun fact: Tech and Soccer.
 
